@@ -49,7 +49,7 @@ Project created by <a href="https://github.com/Nasif40">Nasif40</a> to make it p
 ##
   <h3 align="center">📢 Support Group 1:</h3>
 <p align="center">
-Click WA logo to Join Support Group 👇
+Click Niya logo to Join Support Group 👇
     <br>
 <br>
   <a href="https://chat.whatsapp.com/Hi7xYDFJt8y51abcT1dDy3" target="blank"><img align="center" src="https://i.hizliresim.com/pce1372.png" alt="kyrie.baran" height="200" width="200" /></a>
@@ -58,7 +58,7 @@ Click WA logo to Join Support Group 👇
 ## 
   <h3 align="center">📢 Support Group 2:</h3>
 <p align="center">
-Click Pikachu logo to Join Support Group 2👇
+Click Niya logo to Join Support Group 2👇
     <br>
 <br>
   <a href="https://chat.whatsapp.com/CNWRCnCe1fZ7g3Wo4M8ij4" target="blank"><img align="center" src="https://i.hizliresim.com/pce1372.png" alt="kyrie.baran" height="200" width="200" /></a>
